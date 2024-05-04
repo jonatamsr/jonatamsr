@@ -1,5 +1,5 @@
 # 💫 About Me:
-test
+Over the past 5 years, I have immersed myself in software development, turning significant challenges into valuable opportunities for growth and learning. My approach is centered on the pursuit of excellence, both as a professional and as a team member.
 
 
 ## 🌐 Socials:
